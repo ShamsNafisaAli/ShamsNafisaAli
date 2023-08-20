@@ -1,3 +1,5 @@
+![Profile Views](https://visitor-badge.glitch.me/badge?page_id=ShamsNafisaAli.ShamsNafisaAli&left_color=green&right_color=red)
+
 ### Hi there 👋
 
 <!--
